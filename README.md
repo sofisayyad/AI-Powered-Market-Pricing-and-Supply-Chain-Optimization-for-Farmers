@@ -1,0 +1,1 @@
+# AI-Powered-Market-Pricing-and-Supply-Chain-Optimization-for-Farmers
